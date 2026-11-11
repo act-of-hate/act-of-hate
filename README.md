@@ -1,2 +1,2 @@
 ‎‎‎‎
-　　　　　　　　　　　　　　　　　　　　　　　　　 　𑒱　𑒲　　𑒱　𑒲　　𑒱　♡　[ata‎](https://eatmylove.atabook.org/) 
+　　　　　　　　　　　　　　　　　　　　　　　　　 　　　　　　　♡　[ata‎](https://eatmylove.atabook.org/) 
